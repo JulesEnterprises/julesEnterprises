@@ -1,4 +1,4 @@
-![backGroung](https://github.com/JulesEnterprises/julesEnterprises/assets/149686001/b6a60445-8858-4b89-8be4-052ed800dc4b)
+
 
 
 ### Hi I'm Jules 👋
