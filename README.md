@@ -1,3 +1,6 @@
+https://raw.githubusercontent.vcom/JulesEnterprises/julesEnterprises/main/backGroung.jpeg
+
+
 ### Hi I'm Jules 👋
 
 <!--
