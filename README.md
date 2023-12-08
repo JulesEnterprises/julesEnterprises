@@ -1,4 +1,4 @@
-![Black   White Modern Minimalist Data Analyst LinkedIn Banner](https://github.com/JulesEnterprises/julesEnterprises/assets/149686001/50917068-b308-4ae3-9a55-f33a33e40cc6)
+![Black   White Modern Minimalist Data Analyst LinkedIn Banner (1)](https://github.com/JulesEnterprises/julesEnterprises/assets/149686001/9d83a190-64eb-47ed-90fc-b8d1c289081f)
 
 
 ### Hi I'm Jules 👋
