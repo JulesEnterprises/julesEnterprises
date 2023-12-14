@@ -10,9 +10,9 @@
 
 - 🔭 currently working on a travelling database project.
 - 🌱 I am currently Learning PLS/SQL.
-- 👯 I’m looking to collaborate on.
+<!--- 👯 I’m looking to collaborate on.
 - 🤔 I’m looking for help with.
-- 💬 Ask me about.
+- 💬 Ask me about.--> 
 - 📫 let's connect-[LinkedIn](https://www.linkedin.com/in/junior-jules-3055a2281/)
 - ⚡  I love studying new stuff and be challenged/ I also enjoy playing basket ball and sing.
 
